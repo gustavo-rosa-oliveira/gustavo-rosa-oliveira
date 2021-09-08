@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on small projects.
 - 📫 How to reach me:
   >LinkedIn: https://www.linkedin.com/in/gustavo-da-rosa-oliveira/
-  >WhatsApp: +5548984137976
+  >>WhatsApp: +5548984137976
